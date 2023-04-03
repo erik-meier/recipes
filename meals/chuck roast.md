@@ -1,5 +1,7 @@
 # Chuck Roast
 
+6-8 servings
+
 ## Ingredients
 
 - chuck roast | 3 lb

@@ -15,7 +15,7 @@
 - bbq sauce | 18 oz
 - bourbon hot sauce | 2 tbsp
 - beer | 12 oz
-- sandwich rolls | 8-10
+- sandwich rolls | 12
 
 ## Instructions
 
