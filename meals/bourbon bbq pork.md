@@ -29,7 +29,7 @@
 
 ### Sauce: 20 minutes before meal
 1. Pull top layer of fat off
-2. Place pork on baking sheet and cook in the oven for 20 minutes at 350°  F
+2. Place pork on baking sheet and cook in the oven for 20 minutes at 350° F
 3. Mix hot sauce and bbq sauce together
 4. When pork is done cooking, shred and add sauce
 5. Sandwich and serve
