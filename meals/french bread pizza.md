@@ -6,7 +6,7 @@
 
 - pepperoni | 3 oz
 - pizza sauce | 12 oz
-- dairy-free mozzarella | | 3 oz
+- vegan mozzarella | | 3 oz
 - french bread | 1
 
 ## Instructions
